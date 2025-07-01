@@ -1,0 +1,2 @@
+# averoPrivacy
+Privacy Policy

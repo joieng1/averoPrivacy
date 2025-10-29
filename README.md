@@ -1,4 +1,4 @@
-# **Privacy Policy – Version 2.1.0**
+# **Privacy Policy – Version 2.0.0**
 
 **Avero App**
 
